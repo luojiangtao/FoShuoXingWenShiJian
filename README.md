@@ -1,30 +1,37 @@
-大部分人认为，佛法是高高在上的，
-是和尚和感兴趣的人学习的，跟我没关系，
-&nbsp;
-这是对佛法不了解产生的误解，
-
-> 佛法在世间,不离世间觉。
-> 
-> 离世觅菩提,恰如求兔角。
-> 
-> ——《坛经》
-
-六祖慧能大师说，佛法就在人世间，
-&nbsp;
-如果一个学问，不能用于日常生活，学了等于没学，还不如不学，
-我们学习佛法也是一样，学了就是要用于日常生活的。
-&nbsp;
-实际上佛法在我们的生活中每时每刻都在上演，
-每个人，每天甚至每时每刻的都与佛法息息相关，
-不仅仅是普通人，新闻、名人、事件都一样，
-&nbsp;
-只是大部分人没有学佛，不知道这个事实而已，
-&nbsp;
-佛法不仅能帮助我们了解事实真相，改造命运，还能让我们看透事物背后的事实真相，不被表面现象所迷惑，
-&nbsp;
-因为热点新闻、人物、事件，大家都知道，
-但是对于背后的原因，确不了解，
-知其然不知其所以然，
-&nbsp;
-我写这本书的目的在于，用佛法帮助大家看透事物本质，做一名合格的吃瓜群众，
-外行看热闹，佛法看门道。
+*   [目录](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629197)
+*   [作者和其他书籍](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629198)
+*   [前言](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2632841)
+*   [刘强东美国性侵](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629199)
+*   [昆山刘海龙持刀砍人被反杀](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2635739)
+*   [假活佛10年骗2亿强奸女弟子](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2646220)
+*   [范冰冰偷税漏税](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2640701)
+*   [毒妻翟欣欣逼丈夫苏享茂跳楼](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2646221)
+*   [薇娅偷税漏税被封杀](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629201)
+*   [王力宏出轨嫖娼](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629202)
+*   [韦东奕数学大神为什么智商高](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2646217)
+*   [拳王泰森输比赛入狱负债](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2675359)
+*   [电梯劝阻吸烟气死案](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2635741)
+*   [32岁复旦女博士于娟患癌](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2635742)
+*   [佛媛](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2635744)
+*   [鸿星尔克捐款事件](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2635745)
+*   [吴亦凡强奸坐牢](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2640702)
+*   [王思聪](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2640703)
+    *   [王思聪面相、财运、事业、健康、婚姻、智慧、命运佛法分析](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2734050)
+    *   [王思聪前女友命运佛法分析](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2734051)
+    *   [王思聪投胎技术分析](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2734052)
+*   [吴秀波出轨陈昱霖敲诈](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2646219)
+*   [章泽天为什么能嫁给刘强东做豪门太太？](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2648653)
+*   [狗咬人被打死](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2648654)
+*   [张国荣抑郁症自杀](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629203)
+*   [陈宝莲产后抑郁跳楼自杀](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629204)
+*   [济南大学女生因为父亲家暴抑郁自杀](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2629205)
+*   [明星整容失败](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2710197)
+*   [黄任中风流一生，破产负债多病短命](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2710198)
+*   [佛说：灵璧渔沟中学校园霸凌事件](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2725417)
+*   [善待老太太被提拔](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2725418)
+*   [996 ICU](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2725419)
+*   [吃播暴饮暴食致死](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2725420)
+*   [手术室里全是钱](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2725421)
+*   [喝酒喝进ICU](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2725422)
+*   [嫖娼手淫猝死](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2734053)
+*   [俄罗斯攻打乌克兰](https://www.kancloud.cn/luojiangtao/foshuoxinwen/2734054)
