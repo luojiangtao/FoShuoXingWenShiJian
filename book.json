@@ -1,7 +1,9 @@
 {
     "title": "《佛说新闻事件》罗江涛·著",
     "plugins": [
-        "baidu-tongji"
+        "baidu-tongji",
+        "video",
+        "bilibili"
     ],
     "pluginsConfig": {
         "baidu-tongji": {
